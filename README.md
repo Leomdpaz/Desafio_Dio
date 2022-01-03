@@ -8,24 +8,39 @@ _Caro leitor, trago-lhe estes meus pensamentos breves, porém não-vagos. Cada u
 
 - ### A Visita ⛵
 
-   Saulo abre seus olhos com dificuldade, como se acabara de acordar depois de uma noite de sonhos ruins. 
-    Ao bisbilhotar ao seu redor, percebe que está em uma praia cuja areia não suja seus pés e o oceano que a beija, apaga o iluminar daquela lua já esquecida. 
-    Ele não sente medo ou solidão. Nem mesmo se lembra de como vira parar naquele ambiente com cheiro particular. 
-    Ao longe, ele avista uma figura sobre a água. Parece ser um homem alto, coberto por um manto de uma cor que já não lembrara o nome. A tal figura se aproximava sobre um velho barco, do qual o material que o mesmo fora feito, desgastou-se com o peso das almas que ali se repuseram. 
-    -"Venha Saulo, esta embarcação possui espaço para mais um e seus lamentos", disse o barqueiro com sua voz estranhamente límpida e calma, como o gélido oceano pelo qual acabara de chegar. 
-    Saulo, sem preocupação e questionamento algum, aproxima-se e segue o que foi dito pela figura. 
-    Após algum tempo já nunca existente ali, Saulo indaga a perguntar: 
-    -"Senhor, onde estou?" 
-    -"Em lugar nenhum, meu caro. O que fez todos os que um dia aqui passaram, quererem algo tão concreto e súbito como tal?", pergunta o barqueiro em tom sarcástico. 
-    -"Mas tudo o que existe deve pertencer à algum lugar", diz Saulo inconformado. 
-    O barqueiro emite uma risada tímida e curta e logo diz: 
-    -"Saulo, já sonhaste?" 
-    -"Claro que sim! mas o que tem a ver?" 
-    -"Já parou pra pensar o que te torna existente? E se você for apenas um sonho ou um pensamento breve de um Deus sem lembranças ou uma piada de mau gosto de um bobo divino? Sou apenas o lixeiro de tais pensamentos, alguns esquecidos e outros recordados, como será o seu caso. Enquanto ao lugar Saulo...você o nomeará um dia. Todos nomeiam". 
-    O recém chegado olha para o barqueiro sem face. O mesmo começa a emanar uma luz incessante junto à um ritmado som estranho e cada vez mais alto. Saulo fecha seus olhos diante àquela cegante luz. 
-    **Zumbido.**
+  Saulo abre seus olhos com dificuldade, como se acabara de acordar depois de uma noite de sonhos ruins. 
+   
+  Ao bisbilhotar ao seu redor, percebe que está em uma praia cuja areia não suja seus pés e o oceano que a beija, apaga o iluminar daquela lua já esquecida.
+  
+  Ele não sente medo ou solidão. Nem mesmo se lembra de como vira parar naquele ambiente com cheiro particular. 
     
-   A luz se apaga, o homem abre seus olhos. A primeira coisa que vê e escuta, é o soro em seu braço e o monitor cardíaco sonorizando que seu coração voltou a bater. 
+   Ao longe, ele avista uma figura sobre a água. Parece ser um homem alto, coberto por um manto de uma cor que já não lembrara o nome. A tal figura se aproximava sobre um velho barco, do qual o material que o mesmo fora feito, desgastou-se com o peso das almas que ali se repuseram. 
+    
+   -"Venha Saulo, esta embarcação possui espaço para mais um e seus lamentos", disse o barqueiro com sua voz estranhamente límpida e calma, como o gélido oceano pelo qual acabara de chegar. 
+    
+   Saulo, sem preocupação e questionamento algum, aproxima-se e segue o que foi dito pela figura. 
+    
+   Após algum tempo já nunca existente ali, Saulo indaga a perguntar: 
+    
+   -"Senhor, onde estou?" 
+    
+   -"Em lugar nenhum, meu caro. O que fez todos os que um dia aqui passaram, quererem algo tão concreto e súbito como tal?", pergunta o barqueiro em tom sarcástico. 
+    
+   -"Mas tudo o que existe deve pertencer à algum lugar", diz Saulo inconformado. 
+    
+   O barqueiro emite uma risada tímida e curta e logo diz: 
+    
+   -"Saulo, já sonhaste?" 
+    
+   -"Claro que sim! mas o que tem a ver?" 
+    
+   -"Já parou pra pensar o que te torna existente? E se você for apenas um sonho ou um pensamento breve de um Deus sem lembranças ou uma piada de mau gosto de um bobo divino? Sou apenas o lixeiro de tais pensamentos, alguns esquecidos e outros recordados, como será o seu caso. Enquanto ao lugar Saulo...você o nomeará um dia. Todos nomeiam".
+    
+   O recém chegado olha para o barqueiro sem face. O mesmo começa a emanar uma luz incessante junto à um ritmado som estranho e cada vez mais alto. Saulo fecha seus olhos diante àquela cegante luz. 
+   
+   **Zumbido.**
+    
+  A luz se apaga, o homem abre seus olhos. A primeira coisa que vê e escuta, é o soro em seu braço e o monitor cardíaco sonorizando que seu coração voltou a bater. 
 
 
 - ## O Pequeno Ladrão 🍷
