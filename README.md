@@ -54,16 +54,15 @@ _Caro leitor, trago-lhe estes meus pensamentos breves, porém não-vagos. Cada u
 > Quando o terceiro chegou com um copo na bandeja, o rei enfurecido
 > gritou: “Guardas! Joguem-os na sarjeta!”. 
 > 
->     Um guarda confuso perguntou: “mas por que? majestade”.  
+>  Um guarda confuso perguntou: “mas por que? majestade”.  
 > 
->     “Roubaram meu cálice!”. 
+>  “Roubaram meu cálice!”. 
 > 
->     “Mas não lembras de ontem bem tarde? Chegastes bêbado 
->     e o papagaio soltastes”.  
+>  “Mas não lembras de ontem bem tarde? Chegastes bêbado e o papagaio soltastes”.  
 > 
->     “MAS QUE PAPAGAIO?”. 
+>  “MAS QUE PAPAGAIO?”. 
 > 
->     “O do pirata que roubastes”.
+>  “O do pirata que roubastes”.
 
  
  - ## Mãe do Andarilho 🎒
@@ -78,7 +77,7 @@ _Sarcasmo este de dar e tirar_
  
 _Mas sempre de passagem_ 
 
-_Nunca no mesmo lugar _
+_Nunca no mesmo lugar_
 
 _Andarilho, mas nunca solitário_  
 
@@ -92,9 +91,9 @@ _É sobre aquele que nos moldou a todo instante_
 
 _e em que nesses breves versos_ 
 
-_Ele vos vê, aviltante. _
+_Ele vos vê, aviltante._
 
-_É sobre o tempo que eu vos falo _
+_É sobre o tempo que eu vos falo_
 
 _E é sobre a sua mãe que indago_ 
 
@@ -113,4 +112,3 @@ _Há_
 _De_ 
 
 _Fugir?_
-
