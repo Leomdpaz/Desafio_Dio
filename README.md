@@ -86,48 +86,38 @@ _Caro leitor, trago-lhe estes meus pensamentos breves, porém não-vagos. Cada u
  
  - ## Mãe do Andarilho 🎒
 
-_Nascido do nada e em lugar nenhum, vem dele propósito algum_? 
+_*Mãe do andarilho*_
 
-_Dizer-lhe que cresceu seria um pleonasmo_? 
+_Nascido do nada e em lugar nenhum,_
+_tem ele propósito algum?_
 
-_Mesmo que suas sátiras só cuspam sarcasmo_
+_Dizer-lhe saudades parece um marasmo,_
+_pois suas sátiras só cospem sarcasmo._
 
-_Sarcasmo este de dar e tirar_
- 
-_Mas sempre de passagem_ 
+_Seu riso mordaz o faz hesitar,_
+_mas sempre de passagem,_
+_nunca no mesmo lugar._
 
-_Nunca no mesmo lugar_
+_Andarilho, mas nunca solitário —_
+_quem é a mãe deste velho ordinário?_
 
-_Andarilho, mas nunca solitário_  
+_Mas quando conto seus feitos,_
+_ouço sempre indagar_
+_sobre qual sujeito estou a tratar._
 
-_Quem é a mãe deste velho ordinário_? 
+_É sobre aquele, com seu sapato sem sola,_
+_que faz destes breves versos_
+_melodias na muda viola._
 
-_Frases desconexas vos fazem pensar_ 
+_É sobre o tempo que eu vos falo,_
+_e é sobre a sua mãe que indago:_
 
-_Sobre qual sujeito estou a tratar_ 
+_Quem é essa aqui,_
+_da_
+_qual_
+_o_
+_filho_
+_há_
+_de_
 
-_É sobre aquele que nos moldou a todo instante_  
-
-_e em que nesses breves versos_ 
-
-_Ele vos vê, aviltante._
-
-_É sobre o tempo que eu vos falo_
-
-_E é sobre a sua mãe que indago_ 
-
-_**Quem é essa aqui**_? 
-
-_Da_
-
-_Qual_ 
-
-_O_  
-
-_Filho_ 
-
-_Há_ 
-
-_De_ 
-
-_Fugir?_
+_fugir?_
