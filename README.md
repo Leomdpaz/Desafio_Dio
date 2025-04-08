@@ -113,11 +113,17 @@ _É sobre o tempo que eu vos falo,_
 _e é sobre a sua mãe que indago:_
 
 _Quem é essa aqui,_
+
 _da_
+
 _qual_
+
 _o_
+
 _filho_
+
 _há_
+
 _de_
 
 _fugir?_
